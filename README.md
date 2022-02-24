@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Kenzo-Mzs
-- 👀 I’m interested in learning more about the area
+- 👀 I’m interested in learning more about IT
 - 🌱 I’m in the first semester of "Superior of Technology in Information Technology Management" course
 - 📫 How to reach me: E-mail: kenzomezashi@gmail.com
